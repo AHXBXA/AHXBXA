@@ -1,4 +1,4 @@
-*👏 for the better future
+*👏 for the better future\n
 *🔨maybe
 <!---
 AHXBXA/AHXBXA is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
